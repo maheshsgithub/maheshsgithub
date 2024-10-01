@@ -1,6 +1,6 @@
 - 👋 Hi, This is @maheshsgithub
 - 👀 I’m interested in learning interesting tech stack
-- 📫 How to reach me ... maheshsmailis@gmail.com
+- 📫 How to reach me ... maheshsmailis@gmail.com or reachmeatmaheshkumar@gmail.com
 - 😄 Pronouns: ... Mahesh Kumar
 
 <!---
